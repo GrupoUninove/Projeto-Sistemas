@@ -1,4 +1,3 @@
-Grupo trabalho: 
 Danilo da silva Barbosa 
 RA: 919118804
 
